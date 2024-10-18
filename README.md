@@ -1,0 +1,1 @@
+# Stock-sense-Your-intuitive-stock-trading-platform
